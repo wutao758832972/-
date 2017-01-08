@@ -1,2 +1,10 @@
 # -
-传一些平时的小练习，好开心，好任性·我就是要写中文
+I used to think I was smart,
+but now I don't think I'm smart. 
+People's IQ gap is not large.
+Respect everyone around. 
+Love this world
+
+
+
+
